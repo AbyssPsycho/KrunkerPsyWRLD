@@ -13,3 +13,6 @@ After That "Click Create New Script" (Images Will Be In A File For More In Depth
 
 
 Then Open Krunker.io And There Will Be A Icon Under "settings"! Hope You Enjoy!!!
+
+
+IMAGE FILES ARE IN ORDER FROM TOP TO BOTTOM!
